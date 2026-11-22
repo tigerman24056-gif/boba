@@ -1,2 +1,2 @@
 # boba
-web
+i love boba while watching verity
